@@ -2,9 +2,9 @@
 
 ### Current
 
-Senior Software Engineer at [Box](https://www.box.com/home) in San Francisco, CA since 2017
+**Senior Software Engineer at [Box](https://www.box.com/home)** in San Francisco, CA since 2017
 
-Developer & Strategist at [acreative](https://acreative.io/) in San Francisco, CA since 2010
+**Developer & Strategist at [acreative](https://acreative.io/)** in San Francisco, CA since 2010
 
 ### Previous
 
