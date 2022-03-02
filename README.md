@@ -9,4 +9,3 @@ I'm Alex and I use `he/him` pronouns. [#BlackLivesMatter](https://secure.actblue
   - Avid foreign language learner
   - Dog dad and purveyor of sunny days and long walks
   - Emoji enthusiast
-- 📥 [https://alexlaughnan.com/](https://alexlaughnan.com/)
